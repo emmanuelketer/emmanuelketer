@@ -94,4 +94,5 @@ LinkedIn:
 www.linkedin.com/in/emmanuel-keter-a051b4306
 
 Email:
-your-email@example.com
+emmanuelketer124@gmail.com
+
