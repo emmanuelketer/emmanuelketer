@@ -15,7 +15,6 @@ AI4Startups Agritech Hackathon
 
 🎓 Chairperson, IET On Campus Chapter - Strathmore University
 
-⛳ Golfer at Karen Country Club
 
 ---
 
